@@ -1,0 +1,2 @@
+# Yildiz
+La ilahe illallah
